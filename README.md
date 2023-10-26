@@ -10,4 +10,4 @@ Fiz três questões de arrumar os blocos dos codígos, três de marcar a respost
 
  Acessei a plataforma alura, faltando 15 minuto para acabar a aula, e assisti um video de 9 minutos.       
 
-      - 26/10/2023
+       - 26/10/2023
