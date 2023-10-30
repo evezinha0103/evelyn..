@@ -12,3 +12,7 @@ Fiz três questões de arrumar os blocos dos codígos, três de marcar a respost
     26/10/2023
 
 Vium video de 15 minutos, fiz 5 atividades
+
+30
+
+fiz cinco atividade e um video de11 minuto
