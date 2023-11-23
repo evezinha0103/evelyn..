@@ -20,3 +20,7 @@ fiz 5 atividade, vi um video de 11 minuto e ajudei a mayara.
    06/111/2023
 
 realisei 8 atividades de blocos e tive ajuda da mayara em algumas.
+
+    23/11/2023
+
+Respondi uma ativiade de organizar os blocos, uma de responder a alternativa correta e assiti um vidéo de 3 e outro de 4 minutos, e com isso finalizei o curso
